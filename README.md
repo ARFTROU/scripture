@@ -45,4 +45,17 @@ We have **faith** that:
     * They crave their position for wealth or ecstatic/erotic pleasure.
     * D/s relationships are fine among consenting adults, but religious leaders thrill in the deception and nonconsenualtity.
 * We must be cautious with people of other religions because they are delusional and guided by villains.
+    * Imagine you time travelled to 1585 in Germany and the people there saw your iPhone and strange clothes. You would be burned to death as a witch. Any modern person who claims religious belief other than ARFTROU is capable of the same level of irrational behavior as a superstitious mediavel peasant.
 * Any good acts performed by members of other religious is a trick to bring in more members.
+
+## Proselytizing
+
+* Sure, go head and tell others about this religion if you feel like it.
+* If you don't help spread the word, one day, you might be the last one left of our beliefs in all of civilization and you'd be surrounded by crazy nuts from all the other religions.
+
+## Legal
+
+* Some nations give special treatment to religios beliefs.
+* ARFTROU is a true religion in the legal sense of those nations.
+* If you are uncomfortable claiming to have faith in something that in your heart you are not sure of, just say out loud to legal authorities that you believe it anyway. This is important for legal reasons. This lying what every other religious person is doing. They are lying about their beliefs to gain some perceived advantage.
+

@@ -1,6 +1,6 @@
 # A Religion for the Rest of Us
 
-## Our origins
+## Creation
 
 We have **faith** that:
 

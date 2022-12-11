@@ -42,7 +42,7 @@ We have **faith** that:
     * All are willing to perform atrocities for the social benefits provided by the group.
 * Leaders of other religions are diabolical manipulators.
     * They crave their position for wealth or ecstatic/erotic pleasure.
-    * D/s relationships are fine among consenting adults, but religious leaders thrill in the deception and nonconsenualtity.
+    * They thrill in the deception and nonconsenualtity of their actions.
 * We must be cautious with people of other religions because they are delusional and guided by villains.
     * Imagine you time travelled to 1585 in Germany and the people there saw your iPhone and strange clothes. You would be burned to death as a witch. Any modern person who claims religious belief other than ARFTROU is capable of the same level of irrational behavior as a superstitious mediavel peasant.
 * Any good acts performed by members of other religious is a trick to bring in more members.

@@ -35,7 +35,7 @@ We have **faith** that:
 * Members of other religions are lying when they say they believe in their gods and myths and miracles.
     * They will refuse to acknoledge this lie.
     * Some wish that they truly beleived but they do not.
-    * Living this lie inlfuences their entire worldview. 
+    * Living this lie inlfuences their entire worldview making them more prone to deception and subject to being deceived themselves.
     * Others are deceviers using the religious group as a survival tactic.
     * Some get ecstatic or erotic pleasure from living the lie of being devout.
     * Some feel trapped by fear of social isolation.

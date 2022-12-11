@@ -40,5 +40,5 @@ We have **faith** that:
 * Leaders of other religions are diabolical manipulators.
     * They crave their position for wealth or ecstatic/erotic pleasure.
     * D/s relationships are fine among consenting adults, but religious leaders thrill in the deception and nonconsenualtity.
-* We must be cautious with people of other religions because they are delusional and guided by villians.
+* We must be cautious with people of other religions because they are delusional and guided by villains.
 * Any good acts performed by members of other religious is a trick to bring in more members.

@@ -20,9 +20,13 @@ We have **faith** that:
 
 * A person's mind and body is their own.
 * A person is not the property of civilization.
-* A person has the right to do with their mind and body as they please.
-* The only valid purpose of civilization is to enhance the quality of life of the people which comprise that civilization.
-* A civilization which exploits or harms its members 
+* A person has the right to do with their mind and body as they will.
+    * This includes life inside of a person's body.
+    * Bodily autonomy is higher priority than the right to life.
+* The only valid purpose of civilization is to enhance the quality of life of its members.
+* A civilization which unjustly exploits its members should change.
+    * If it fails to change, it should be destroyed, either from within or without.
+* If a civilization wishes to grow it should work to create a life worth living for all its members instead of enforcing draconian measures to perpeturate itself.
 
 ## Other Religions
 

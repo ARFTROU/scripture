@@ -40,7 +40,6 @@ We have **faith** that:
     * Some get ecstatic or erotic pleasure from living the lie of being devout.
     * Some feel trapped by fear of social isolation.
     * All are willing to perform atrocities for the social benefits provided by the group.
-    * Living this 
 * Leaders of other religions are diabolical manipulators.
     * They crave their position for wealth or ecstatic/erotic pleasure.
     * D/s relationships are fine among consenting adults, but religious leaders thrill in the deception and nonconsenualtity.
